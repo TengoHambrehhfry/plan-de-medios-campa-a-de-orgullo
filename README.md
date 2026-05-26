@@ -1,1 +1,0 @@
-# plan-de-medios-campa-a-de-orgullo
